@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do PedroLucas-244
+## Bem-vindo(a) ao perfil do Pedro Lucas
  😁
 
  <div>
